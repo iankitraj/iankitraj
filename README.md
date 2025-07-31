@@ -68,7 +68,7 @@ I'm Ankit Raj, currently pursuing B.Tech in Computer Engineering at RK Universit
 - 📧 **Email:** [iankitraj18@gmail.com](mailto:iankitraj18@gmail.com)  
 - 💬 **WhatsApp:** [Message me on WhatsApp](https://wa.me/919608527940?text=Hi%20Ankit%2C%20I%20found%20you%20via%20GitHub!%20Let's%20connect.)  
 - 💼 **LinkedIn:** [linkedin.com/in/ankit-raj-20282a297](https://www.linkedin.com/in/ankit-raj-20282a297/)  
-- 📄 **Resume:** [Download Resume (PDF)](https://chat.openai.com/share/file/5Fkop8AFoDPtrCRX7jjDSC)
+- 📄 **Resume:** [Download Resume (PDF)](https://drive.google.com/drive/folders/1e4_G0n2kf6J-har7uPbIND3g9NbTDx4f?usp=drive_link)
 
 ---
 
